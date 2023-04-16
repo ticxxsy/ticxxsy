@@ -2,4 +2,4 @@
 - 👀 I’m interested in cpp, game exploitation, reverse engineering.
 - 🌱 I’m currently learning how to live.
 - 💞️ I’m looking to collaborate on nothing as of right now.
-- 📫 How to reach me, Discord(ticxsy#4174), Email(ticxsymain@gmail.com) or UnknownCheats (@qu33ny). 
+- 📫 How to reach me, Discord(twicxsy#5118), Email(ticxsymain@gmail.com) or UnknownCheats (@qu33ny). 
